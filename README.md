@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Programming Logic**
 
-- 📫 How to reach me **raiaause00@gmail.com**
+- 📫 How to reach me **ankitjha0902k@gmail.com**
 
 - ⚡ Fun fact **I am Funny**
 
